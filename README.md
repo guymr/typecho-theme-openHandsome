@@ -12,7 +12,7 @@
 
 [在线预览 Preview ](https://www.ihewro.com/archives/489/) | [使用文档](https://www.ihewro.com/archives/519/)
 
-![handsome](https://ww4.sinaimg.cn/large/a15b4afegy1fdwvucupnwj20rs0hwq6v)
+![handsome](https://ws1.sinaimg.cn/large/005HTDcGgy1fwcvikuxkcj30rs0hwq6v.jpg)
 
 ## 贡献 Contributing
 
